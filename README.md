@@ -1,4 +1,4 @@
-# world-of-warcraft
+# world of warcraft
 WoW Private Servers
 
 # Top World Of Warcraft Servers Best [WoW Private Servers 2022]
